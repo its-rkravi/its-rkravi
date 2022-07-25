@@ -1,4 +1,4 @@
-### 👋 Hi, I’m Rahul Kumar Ravi
+### 👋 Hi, I’m Rahul Kumar Ravi, Graduated in Computer Science Currently Pursuing MCA from MANIT Bhopal.
 
 
 
